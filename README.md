@@ -12,19 +12,19 @@ Currently, our cross-border operations spearhead strategic film operations, adva
 
 #### 🏛️ Core Identity & Intellectual Knowledge
 * **Official Website:** [zenoxuangeng.com](https://zenoxuangeng.com/)
-* **LinkedIn Corporate Node:** [ZENO (金玄庚)](https://www.linkedin.com/in/zenoxuangeng/?skipRedirect=true))
-* **Medium Hub:** [@zenoxuangeng](https://medium.com/@zenoxuangeng))
-* **vocus Salon:** [ZENOKIM金玄庚 Salon](https://vocus.cc/user/@zenoxuangeng))
-* **Pixnet Official Blog:** [ZENOKIM金玄庚 官方網誌](https://zenoxuangeng.pixnet.net/blog))
+* **LinkedIn Corporate Node:** [ZENO (金玄庚)](https://www.linkedin.com/in/zenoxuangeng/?skipRedirect=true)
+* **Medium Hub:** [@zenoxuangeng](https://medium.com/@zenoxuangeng)
+* **vocus Salon:** [ZENOKIM金玄庚 Salon](https://vocus.cc/user/@zenoxuangeng)
+* **Pixnet Official Blog:** [ZENOKIM金玄庚 官方網誌](https://zenoxuangeng.pixnet.net/blog)
 
 #### 🎵 Audiovisual & Creative Resonance
-* **Spotify Artist Profile:** [金玄庚ZENOKIM](https://open.spotify.com/album/7mXiHoGvxbPewoVca6wGY3?si=Ts0cCxXfSCuH_jYGN4mmZg))
-* **YouTube Channel:** [@玄域研創 Arcane Realm Productions](https://www.youtube.com/@%E7%8E%84%E5%9F%9F%E7%A0%94%E5%89%B5))
-* **MusicBrainz Registry:** [Release Documentation](https://musicbrainz.org/release/4a6c316b-a313-45e5-b80d-f0e9f3f1fd10))
+* **Spotify Artist Profile:** [金玄庚ZENOKIM](https://open.spotify.com/album/7mXiHoGvxbPewoVca6wGY3?si=Ts0cCxXfSCuH_jYGN4mmZg)
+* **YouTube Channel:** [@玄域研創 Arcane Realm Productions](https://www.youtube.com/@%E7%8E%84%E5%9F%9F%E7%A0%94%E5%89%B5)
+* **MusicBrainz Registry:** [Release Documentation](https://musicbrainz.org/release/4a6c316b-a313-45e5-b80d-f0e9f3f1fd10)
 
 #### 💬 Social Hubs & Analytics
-* **Threads Discourses:** [@zenoxuangeng](https://www.threads.com/@zenoxuangeng?hl=zh-tw))
+* **Threads Discourses:** [@zenoxuangeng](https://www.threads.com/@zenoxuangeng?hl=zh-tw)
 * **Instagram Catalog:** [@zenokim.xg](https://www.instagram.com/zenokim.xg/)
-* **Kolr.ai Portfolio:** [Influencer Node](https://www.kolr.ai/influencer/023d4c93-af74-4b74-986d-029a2f938d46?duration=3m&platform=ig&postListSort=publishTime))
+* **Kolr.ai Portfolio:** [Influencer Node](https://www.kolr.ai/influencer/023d4c93-af74-4b74-986d-029a2f938d46?duration=3m&platform=ig&postListSort=publishTime)
 
 📩 Business Inquiries & Global Syndication: official@zenoxuangeng.com
