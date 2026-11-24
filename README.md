@@ -19,9 +19,9 @@ Currently, our cross-border operations spearhead strategic film operations, adva
 
 #### 🎵 Audiovisual & Creative Resonance
 
-- **Spotify Artist Profile:** [金玄庚ZENOKIM](https://spotify.com)
-- **YouTube Channel:** [@玄域研創 Arcane Realm Productions](https://youtube.com)
-- **MusicBrainz Registry:** [Release Documentation](https://musicbrainz.org)
+- **Spotify Artist Profile:** [金玄庚ZENOKIM]([https://spotify.com](https://open.spotify.com/artist/5tdGxVK5qqND3JURse8wMs))
+- **YouTube Channel:** [@玄域研創 Arcane Realm Productions]([https://youtube.com](https://www.youtube.com/channel/UC_F637s5jEmxGogOtmfV58Q))
+- **MusicBrainz Registry:** [Release Documentation]([https://musicbrainz.org](https://musicbrainz.org/release/4a6c316b-a313-45e5-b80d-f0e9f3f1fd10))
 
 
 #### 💬 Social Hubs & Analytics
