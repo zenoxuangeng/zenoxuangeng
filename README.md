@@ -18,8 +18,8 @@ Currently, our cross-border operations spearhead strategic film operations, adva
 * **Pixnet Official Blog:** [ZENOKIM金玄庚 官方網誌](https://zenoxuangeng.pixnet.net/blog)
 
 #### 🎵 Audiovisual & Creative Resonance
-* **Spotify Artist Profile:** [金玄庚ZENOKIM](https://open.spotify.com/album/7mXiHoGvxbPewoVca6wGY3?si=Ts0cCxXfSCuH_jYGN4mmZg)
-* **YouTube Channel:** [@玄域研創 Arcane Realm Productions](https://www.youtube.com/@%E7%8E%84%E5%9F%9F%E7%A0%94%E5%89%B5)
+* **Spotify Artist Profile:** [金玄庚ZENOKIM]([https://open.spotify.com/album/7mXiHoGvxbPewoVca6wGY3?si=Ts0cCxXfSCuH_jYGN4mmZg](https://open.spotify.com/artist/5tdGxVK5qqND3JURse8wMs))
+* **YouTube Channel:** [@玄域研創 Arcane Realm Productions]([https://www.youtube.com/@%E7%8E%84%E5%9F%9F%E7%A0%94%E5%89%B5](https://www.youtube.com/channel/UC_F637s5jEmxGogOtmfV58Q))
 * **MusicBrainz Registry:** [Release Documentation](https://musicbrainz.org/release/4a6c316b-a313-45e5-b80d-f0e9f3f1fd10)
 
 #### 💬 Social Hubs & Analytics
