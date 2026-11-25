@@ -1,10 +1,26 @@
 # ZENOKIM (金玄庚)
 
-Interdisciplinary Artist, Musician, and Enterprise Strategic Advisor driving creative intuition through digital logic. 
+> **Special Advisor & Strategist (Corporate Governance / Executive Risk Management)** | **Founder of Arcane Realm Productions (玄域媒體製作)** | **Interdisciplinary Artist & Experimental Electronic Music Producer**
 
-As the core driving force behind Arcane Realm Productions (玄域媒體製作),金玄庚(ZENOKIM/ZENOXUANGENG/ZENO玄庚/Mr. Kim) fuses artistic sensibility with rigorous digital logic. This sovereign GitHub node orchestrates our data synchronization across regional media platforms on Pixnet (痞客邦) and vocus (方格子), alongside our international knowledge hubs on Medium and LinkedIn, maintaining a globally unified repository for ZENO's creative handbooks, technological R&D frameworks, and official media archives.
+### Executive Advisory & Strategic Positioning | 核心戰略與專業定位
 
-Currently, our cross-border operations spearhead strategic film operations, advanced algorithmic music productions, and technology-driven business consulting, delivering vision-driven value innovation and highly curated ecosystem layout at the frontier of culture and tech.
+**ZENOKIM 金玄庚 (ZENO玄庚 / Mr. Kim / zenoxuangeng)** operates under the core principle of **"Enterprise First, Art as Companion" (企業為主、藝術為輔)**. He specializes in **Corporate Governance**, **Business Incubation**, and **Executive Risk Management**—excelling in complex conflict resolution, high-stakes crisis maneuvering, and multi-party dispute deconstruction.
+
+Simultaneously serving as **Curator of Private Tea Salon & Bespoke Art Acquisitions (By Invitation Only)**, he integrates asymmetric intelligence deduction systems, classical metaphysical insights, and contemporary audiovisual aesthetics to provide high-net-worth decision-makers, family successors, and public leaders with physically confidential situational stress-testing, blind-spot scanning, reputational risk early warning, and brand spirit revitalization.
+
+---
+
+#### 繁體中文完整論述
+
+**ZENOKIM 金玄庚 — Special Advisor（特別顧問） / Strategist（策略官）**  
+專注於企業治理（Corporate Governance）、事業育成（Business Incubation）與高階風控（Executive Risk Management）。擅長處理複雜利益衝突、高風險危機博弈（High-stakes Crisis Maneuvering）與多方爭議拆解。
+
+同時擔任私人茶席與定制藝術資產主理人（Curator of Private Tea Salon & Bespoke Art Acquisitions, By Invitation Only），奉行「企業為主、藝術為輔」之核心準則，結合非對稱情報推演系統與古典氣數洞察，為決策者提供物理級保密之局勢壓力測試與戰略輔助。
+
+* 「ZENOKIM 金玄庚，跨領域架構師、決策風控顧問兼實驗電子音樂人。致力於將古典玄學氣數智慧、非對稱情報推演邏輯與當代視聽美學深度融合，為高資產企業決策者、家族接班人與公眾領袖提供『局勢盲點掃描』、『聲譽風險早期預警』與『品牌精神重塑』服務。」
+
+---
+
 
 ***
 
